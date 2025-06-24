@@ -11,9 +11,9 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hl414.pages.dev/">黑料门</a>
+点击访问：<a href="https://hl393.pages.dev/">独家黑料</a>
 
-点击访问：<a href="https://cg184.pages.dev/">今日黑料</a>
+点击访问：<a href="https://hl377.pages.dev/">黑料社app</a>
 
 点击访问：<a href="https://hl403.pages.dev/">最新海角</a>
 
